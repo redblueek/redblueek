@@ -1,3 +1,9 @@
 # hi im redblueek 
+## also known as zlotowka
 
-i like to code [vscode]https://cdn3.emoji.gg/emojis/2829_VSCode.png]
+- ### a person, who likes arduino
+*and some other electronic stuff*
+
+- ### a nintendo fan!1
+  - i really like emulating <:
+  - "MARIOKART IS THE BEST GAME IN DA WORLD HAHA"
